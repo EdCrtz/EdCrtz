@@ -1,4 +1,4 @@
-# **Eduardo Alejandro Cortez Esparza**
+# **Eduardo Alejandro Cortez Esparza** #
 ## Middle Software Engineer
 **<eduardo.alex.eace@gmail.com>** **6672169874**  **[github.com/EdCrtz](github.com/EdCrtz)**
 ### About me
