@@ -1,6 +1,6 @@
 # **Eduardo Alejandro Cortez Esparza** 
 ###  **Middle Software Engineer**
-**<eduardo.alex.eace@gmail.com>** **<6672169874>**  **[github.com/EdCrtz](github.com/EdCrtz)**
+**<eduardo.alex.eace@gmail.com>** **+5216672169874**  **[github.com/EdCrtz](github.com/EdCrtz)**
 ### About me
 A middle software Engineer with 3 years of experience in application design and development with a different technologies
 of the Computer science. My skills are not limited to my years of experience,
